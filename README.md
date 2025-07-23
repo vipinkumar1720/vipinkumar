@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **FrontEnd, DevOps**
 
-- 📫 How to reach me **YourEmailHere**
+- 📫 How to reach me **vipinkumar172005@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
